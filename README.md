@@ -1,5 +1,0 @@
-- 👋 Hi, I’m Vyk.
-- 👀 I’m interested in chatting with you.
-- 🌱 I’m currently learning in middle school😹
-- 💞️ I’m looking to collaborate on hobbies and video games.
-- 📫 How to reach me  vickypeta4  <-my gmail. 👍
